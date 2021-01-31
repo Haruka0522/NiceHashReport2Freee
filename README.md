@@ -1,0 +1,1 @@
+# NiceHashReport2Freee
